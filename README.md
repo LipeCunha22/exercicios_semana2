@@ -1,1 +1,0 @@
-# exercicios_semana2
